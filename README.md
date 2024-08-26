@@ -1,4 +1,5 @@
 # ShadowSharkPVP
 ## on github?
 <br>
-yeah so idk what I'm doing but I was told to write a markdown readme? idk just sub and follow all my socials
+yeah i don't know why i'm hear either... good job finding me though!
+... do you not have anything better to do?
